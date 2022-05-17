@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @cartoone222
 - 👀 I’m interested in serveur programing
-- 🌱 I’m currently learning in web
+- 🌱 I’m currently learning in a lot of thigs
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
